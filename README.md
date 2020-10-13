@@ -10,6 +10,6 @@ Description
 **Links:**
 * [LinkedIn](https://www.linkedin.com/in/cesar-ofuchi-7a646517/)
 
-
+* [Google Scholar](https://scholar.google.com.br/citations?user=mZhedLAAAAAJ&hl=en)
 
 ---
